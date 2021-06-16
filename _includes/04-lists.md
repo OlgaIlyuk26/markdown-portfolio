@@ -1,0 +1,6 @@
+- My hobbies
+- sewing
+- knitting
+- scrapbooking
+- polymer clay
+- flowers from foamiran and papers
