@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+# My hobbies
+## sewing
+## knitting
+## scrapbooking
+## polymer clay
+## flowers from foamiran and papers
